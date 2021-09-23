@@ -19,4 +19,4 @@ https://youtu.be/G5_99lepkoI
 ![image](https://user-images.githubusercontent.com/81784631/134551388-a17c0b0c-8927-46e2-9dd5-513c536ddb5c.png)
 
 수상
-![image](https://user-images.githubusercontent.com/81784631/134551411-caa71e8b-d0b5-4cc9-8233-a0b88a0cdf87.png)
+![image](https://user-images.githubusercontent.com/81784631/134552726-aec6146a-3572-48f1-9079-da99dbfaec1a.png)
